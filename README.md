@@ -1,5 +1,5 @@
 # ML
-GATECH machine learning
+https://gatech.instructure.com/courses/7194/assignments/syllabus
 
 Jan 9
 ML is the ROX (Links to an external site.)Links to an external site.
